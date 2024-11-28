@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on website.
 - 📫 How to reach me : abellard189@gmail.com
 - 😄 Pronouns: HE
-- ⚡ Fun fact: i hate fat bitches, CEPENDANT...
+- ⚡ Fun fact: i love graphic design...
 
 <!---
 ablard-j/ablard-j is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
